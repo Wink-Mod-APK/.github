@@ -92,3 +92,12 @@ No, the MOD APK version provides an ad-free and watermark-free experience.
 ## ⚠️ Disclaimer
 
 This is a modified version of the official Wink app, and it provides unlocked features not present in the original. Remember that modified APKs are unofficial and not affiliated with Meitu (China) Limited.
+
+### 🔗 Related Resources
+- [Wink App](https://www.wink.com/)
+- [MicroG Installation Guide](https://microg.org/)
+
+## 📬 Contact & Feedback
+
+For any questions, issues, or suggestions, feel free to open an issue in this repository. We appreciate your feedback and contributions to improve this resource!
+
